@@ -1,5 +1,7 @@
 在大模型时代，人人都是产品经理，专业的产品经理能够创作出更符合人类需要的产品，我注册了promptpm.pro的域名，这将成为所有产品经理的平台和社区
 
+In the era of large models, everyone is a product manager. Professional product managers can create products that better meet human needs. I have registered the domain promptpm.pro, which will become the platform and community for all product managers.
+
 En la era de los modelos grandes, todos son gerentes de productos. Los gerentes de productos profesionales pueden crear productos que se ajusten mejor a las necesidades humanas. Me he registrado el dominio promptpm.pro, que se convertirá en la plataforma y comunidad para todos los gerentes de productos.
 
 À l'ère des grands modèles, tout le monde est un chef de produit. Les chefs de produit professionnels peuvent créer des produits mieux adaptés aux besoins humains. J'ai enregistré le domaine promptpm.pro, qui deviendra la plateforme et la communauté pour tous les chefs de produit.
